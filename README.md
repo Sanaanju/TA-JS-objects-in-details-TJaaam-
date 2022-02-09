@@ -1,1 +1,1 @@
-# TA-JS-objects-in-details-TJaaam
+# TA-JS-objects-in-details-Tjaaam
